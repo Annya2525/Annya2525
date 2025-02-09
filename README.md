@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Annya2525
 - 👀 I’m interested in web development 
 - 🌱 I’m currently learning
-- 💞️ I’m looking to collaborate on Project
+- 💞️ I’m looking to collaborate on Project's
 - 📫 Reach me by Email:chauhanannya007@gmail.com
 - 😄 Pronouns:She/Her
 - ⚡ Fun fact: Students who wants to Learn About New Things
